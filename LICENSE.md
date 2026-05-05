@@ -1,4 +1,4 @@
-
+custom attack on titan revolution Scripts is the best attack on titan revolution Script, featuring speed and auto-collect. Safe and powerful for all
 
 
 
